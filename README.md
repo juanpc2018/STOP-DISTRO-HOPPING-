@@ -41,4 +41,4 @@ https://en.wikipedia.org/wiki/Manjaro </br>
 https://en.wikipedia.org/wiki/Comparison_of_Linux_distributions </br>
 https://en.wikipedia.org/wiki/List_of_Linux_distributions </p>
 
-## What is your Next Hopp?™
+## What is your Next Hop?™
