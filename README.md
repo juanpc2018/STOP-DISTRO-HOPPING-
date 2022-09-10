@@ -29,7 +29,7 @@ if you want to be like The Mask (1994) </br>
 https://youtu.be/EZi3PhRQw00 </br>
 https://youtu.be/aT9vbMAzgt8?t=6 </p>
 
-does Not matter if its prerry or ugly, </br>
+does Not matter if its pretty or ugly, </br>
 Hopp, Hopp until you cant dance No more. LOL.™  </br>
 https://www.youtube.com/watch?v=UbS1LYRLRRo </br>
 https://en.wikipedia.org/wiki/List_of_Linux_distributions </br>
