@@ -31,7 +31,7 @@ https://youtu.be/aT9vbMAzgt8?t=6 </p>
 
 does Not matter if its pretty or ugly, </br>
 Hopp, Hopp until you cant dance No more. LOL.™  </br>
-https://www.youtube.com/watch?v=UbS1LYRLRRo </br>
+https://youtu.be/APtRoHh2GWw </br>
 https://en.wikipedia.org/wiki/List_of_Linux_distributions </br>
 Download ALL, </br>
 Never use 1 Distro More than 1 year. </p>
