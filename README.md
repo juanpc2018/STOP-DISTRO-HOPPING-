@@ -26,7 +26,7 @@ STOP DISTRO HOPPING,? </p>
 
 Answere is Yes, </br>
 if you want to be a Sitting Duck, </br>
-No if you want to be like the Mask (1994) </br>
+No if you want to be like The Mask (1994) </br>
 https://youtu.be/EZi3PhRQw00 </p>
 
 does Not matter if its prerry or ugly, </br>
