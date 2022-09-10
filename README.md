@@ -41,4 +41,4 @@ Keep Virtual images if you want to Hopp Back. LOL.™ </p>
 https://en.wikipedia.org/wiki/Manjaro
 https://en.wikipedia.org/wiki/Comparison_of_Linux_distributions
 
-What is your Next Hopp ?
+What is your Next Hopp?™
