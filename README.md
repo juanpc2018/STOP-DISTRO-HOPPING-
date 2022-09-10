@@ -7,7 +7,7 @@ Thats Manjaro website download mantra.. </br>
 https://manjaro.org/download/ </p>
 
 but is it a good idea? </br>
-STOP DISTRO HOPPING,</p>
+STOP DISTRO HOPPING,?</p>
 
 ¿where else is hopping used? </p>
 
