@@ -1,7 +1,6 @@
-## STOP-DISTRO-HOPPING ?
+## STOP DISTRO HOPPING ?
 
 ![Screenshot_20220910_174448-50](https://user-images.githubusercontent.com/33388902/189504560-e73dbd84-c7ad-410a-a6e9-09a7d6bc4264.jpg)
-
 
 Thats Manjaro website download mantra.. </br>
 https://manjaro.org/download/ </p>
