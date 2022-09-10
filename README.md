@@ -13,8 +13,7 @@ STOP DISTRO HOPPING,?</p>
 BLueTooth, Wi-Fi, VPN, </br>
 Ultra Secret Military Communications... </br>
 https://en.wikipedia.org/wiki/Frequency-hopping_spread_spectrum </br>
-https://en.wikipedia.org/wiki/Frequency-hopping_spread_spectrum#Variations </br>
-https://en.wikipedia.org/wiki/List_of_Linux_distributions </p>
+https://en.wikipedia.org/wiki/Frequency-hopping_spread_spectrum#Variations </p>
 
 STOP DISTRO HOPPING makes you a Sitting Duck.</br>
 https://en.wiktionary.org/wiki/sitting_duck </p>
@@ -38,7 +37,8 @@ Never use 1 Distro More than 1 year. </p>
 
 Keep Virtual images if you want to Hopp Back. LOL.™ </p>
 
-https://en.wikipedia.org/wiki/Manjaro
-https://en.wikipedia.org/wiki/Comparison_of_Linux_distributions
+https://en.wikipedia.org/wiki/Manjaro </br>
+https://en.wikipedia.org/wiki/Comparison_of_Linux_distributions </br>
+https://en.wikipedia.org/wiki/List_of_Linux_distributions </p>
 
 ## What is your Next Hopp?™
